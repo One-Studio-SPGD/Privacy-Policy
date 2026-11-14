@@ -16,7 +16,7 @@ Information Collection
 
 
 
-Old Horizons does not collect, store, or share any personally identifiable information such as your name, email address, phone number, or location.
+One Studio does not collect, store, or share any personally identifiable information such as your name, email address, phone number, or location.
 
 
 
