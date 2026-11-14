@@ -4,7 +4,7 @@ Privacy Policy for Old Horizons
 
 
 
-Last updated: June 29, 2026
+Last updated: November 14, 2026
 
 
 
